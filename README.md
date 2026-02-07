@@ -1,1 +1,1 @@
-https://github.com/slayshii/ono-tebe-nado-ad-main1
+https://github.com/slayshii/ono-tebe-nado-ad
